@@ -8,7 +8,7 @@
 
 ## Album : appettite for destruction 
 
-## A musica pronta esta em mp3:musical_score:
+## A musica pronta esta em mp3 e vc pode escutar:musical_score:
 
 
 
