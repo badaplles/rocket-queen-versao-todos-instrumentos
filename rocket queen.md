@@ -1,6 +1,6 @@
 ##  Esse trecho da  musica foi transcrita por mim no Reaper:guitar:
 
-### A guitarra eu toquei.
+### A guitarra eu toquei e o restante dos instrumentos são virtuais mais todos escrito nota por nota
 
 ### Nome da musica : Rocket Queen
 
