@@ -6,7 +6,7 @@
 
 ### Guns n Roses :gun:     :rose:
 
-## Album appettite for destruction 
+## Album : appettite for destruction 
 
 ## A musica pronta esta em mp3:musical_score:
 
