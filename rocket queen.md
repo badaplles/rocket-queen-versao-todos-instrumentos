@@ -1,6 +1,6 @@
-##  Essa musica foi escrita por mim no Reaper:guitar:
+##  Esse trecho da  musica foi transcrita por mim no Reaper:guitar:
 
-### e a guitarra eu toquei.
+### A guitarra eu toquei.
 
 ### rocket :rocket:queen
 
