@@ -1,14 +1,14 @@
-## essa musica foi toda escrita por mim:guitar:
+##  Essa musica foi escrita por mim no Reaper:guitar:
 
-### e a guitarra eu toquei
+### e a guitarra eu toquei.
 
 ### rocket :rocket:queen
 
-### guns n roses :gun:       :rose:
+### Guns n Roses :gun:     :rose:
 
 
 
-### criado no reaper
+## A musica pronta esta em mp3:musical_score:
 
 
 
