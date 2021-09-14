@@ -2,11 +2,11 @@
 
 ### A guitarra eu toquei.
 
-### rocket :rocket:queen
+### Nome da musica : Rocket Queen
 
 ### Guns n Roses :gun:     :rose:
 
-
+## Album appettite for destruction 
 
 ## A musica pronta esta em mp3:musical_score:
 
